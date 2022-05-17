@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Patrickbtmn
+- 👀 I’m interested in AI and Machine Learning
